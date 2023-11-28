@@ -1,1 +1,1 @@
-
+pahulay, ayaw pahago.
